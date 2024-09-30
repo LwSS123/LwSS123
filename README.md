@@ -1,4 +1,4 @@
-# hi, I'm Sherry!
+# Hi, I'm Sherry!
 😊A recent graduate deeply interested in data analytics <br>
 
 👩🏼‍🎓 Studied Digital Business at the Hong Kong Metropolitan University
