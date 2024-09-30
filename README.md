@@ -1,7 +1,9 @@
 # Hi, I'm Sherry!
 😊A recent graduate deeply interested in data analytics <br>
 
-👩🏼‍🎓 Studied Digital Business at the Hong Kong Metropolitan University
+👩🏼‍🎓 Studied Digital Business at the Hong Kong Metropolitan University <br>
+
+💻Transforming Ideas into Reality~
 <br>
 
 ## 🌐 Socials:
